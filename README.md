@@ -1,0 +1,1 @@
+# grukz74-KOReader.modified.browser.cover
